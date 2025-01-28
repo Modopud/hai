@@ -1,2 +1,2 @@
 hai
-![noi](https://media.discordapp.net/attachments/886333034104754216/1203808621926940753/IMG_6267.png?ex=65d27125&is=65bffc25&hm=e3dd2e1f5e014070639a21149eba0632f334ed5182376d99f8fd388949d3c5bf&)
+![hai](<blockquote class="imgur-embed-pub" lang="en" data-id="a/UdDP6lW"  ><a href="//imgur.com/a/UdDP6lW">Homophobe</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>)
